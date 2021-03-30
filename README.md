@@ -1,6 +1,6 @@
 # Introduction
 
-1일 1포스팅
+I will do **1 post per day**..!🙏 
 
 
 
